@@ -10,5 +10,3 @@ Meu nome é Mariane Vitória
   ### Você pode entrar em contato comigo 🎦
 
  00001114705378sp@al.educacao.sp.gov.br 
-
- 
